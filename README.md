@@ -1,2 +1,2 @@
 # wargamez
-glowing-computing-machine
+### SPOILERS AHEAD
